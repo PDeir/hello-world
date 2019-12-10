@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Excited to join, hope to make a positive impact.
